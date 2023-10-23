@@ -1,2 +1,2 @@
-Mathys Sery
+Mathys SERY
 Louis RAVAIN
